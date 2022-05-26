@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Shubham Rana aKaToofaanOP
+- 👀 I’m interested in free and open source softwares and actually everything about free and open source
+- 🌱 I’m currently learning INDIA 
+- 💞️ I’m noob right now but i will go forward from Plinth to Paramount :)
+- 📫 How to reach me ... arcticle356@gmail.com 
+- Thanks guys and wish you good day ahead :)
