@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Shubham Rana aKaToofaanOP
+- 👋 Hi, I’m Shubham Rana aKa ToofaanOP
 - 👀 I’m interested in free and open source softwares and actually everything about free and open source
 - 🌱 I’m currently learning INDIA 
 - 💞️ I’m noob right now but i will go forward from Plinth to Paramount :)
